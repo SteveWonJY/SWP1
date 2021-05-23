@@ -1,2 +1,2 @@
-20192840	Won JaeYeon
+Won JaeYeon:20192840
 Kookmin Univ. SW dept.
